@@ -19,4 +19,4 @@ Feel free to explore the webpage to discover intriguing insights about Audrey He
 
 ## Get in Touch
 
-Connect with me on LinkedIn <a href="https://www.linkedin.com/in/ana-paulaguerrero/"/>
+Connect with me on LinkedIn <a href="https://www.linkedin.com/in/ana-paulaguerrero/">
